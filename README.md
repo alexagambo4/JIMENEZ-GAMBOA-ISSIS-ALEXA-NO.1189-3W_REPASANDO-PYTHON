@@ -1,1 +1,11 @@
 # JIMENEZ-GAMBOA-ISSIS-ALEXA-NO.1189-3W_REPASANDO-PYTHON
+![image](https://github.com/user-attachments/assets/6874c605-7b91-4aee-97b3-79de1560b32e)
+![image](https://github.com/user-attachments/assets/daeb1faf-ba3a-4827-bff7-7bf4cfb17046)
+![image](https://github.com/user-attachments/assets/46f21633-27cc-4120-b45f-df73cba53319)
+![image](https://github.com/user-attachments/assets/c2fdda0c-e4b5-4d77-906d-e58212009644)
+![image](https://github.com/user-attachments/assets/080a15af-a849-4600-b771-085eb00e2af3)
+![image](https://github.com/user-attachments/assets/eac3e8b4-9f87-4546-93ec-9febc7f1d9d0)
+![image](https://github.com/user-attachments/assets/6943c1c8-a8f2-4ba9-9396-8ff3d15a9a8e)
+![image](https://github.com/user-attachments/assets/1cb261c8-5b33-4686-be76-722fa11c741e)
+![image](https://github.com/user-attachments/assets/15146962-faeb-4fc3-a17d-0c37bbff9214)
+![image](https://github.com/user-attachments/assets/a4c44385-eee7-46f3-8aca-3ccdfb751e5f)
